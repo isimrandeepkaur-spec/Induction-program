@@ -21,6 +21,7 @@ ADC of Ludhiana, **Mr. Rakesh Kumar** talked about the good change in the infras
 The day concluded with refreshing thoughts and excitement for the beginning of new journey.⭐
 
 # Day 2
-It was the starting of new week and my new journey of college. <br>
+###"NEW WEEK, NEW CHAPTER, NAVIGATING COLLEGE LIFE TOGETHER."###<br>
 **Prof. Rajvir Kaur Ma'am** engaged with us, quizzing on 12th-grade chemistry terms, and highlighted how crucial chemistry is for tech-related fields.
 Our seniors, **Ms. Taranpreet Kaur and S. Sharnjeet Singh**, taught us C++ programming, helping us build a strong foundation.
+
