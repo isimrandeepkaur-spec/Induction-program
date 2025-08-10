@@ -17,8 +17,9 @@ Dean **Dr. Parminder Singh** Sir emphasized that if we dream big and work hard, 
 Respected Principal **Dr. Sehijpal Singh** Sir welcomed us and spoke about the change of today's need in technology.
 <br>
 Chief engineer **Er. Ravinder Garg** at Municipal Corporation, Ludhiana told his journey and he stressed the importance of good manners and social responsibility, highlighting their role in nation-building. His words promoted integrity and civic duty. <br>
-ADC of Ludhiana, **Mr. Rakesh Kumar** talked about the good change in the infrastructure of college as he was a pass out of ECE 1991 batch.
-The day concluded with refreshing thoughts and excitement for the beginning of new journey.⭐
+ADC of Ludhiana, **Mr. Rakesh Kumar** talked about the good change in the infrastructure of college as he was a pass out of ECE 1991 batch. <br> <br>
+**THE DAY CONCLUDED WITH REFRESHING THOUGHTS AND EXCITEMENT FOR THE BEGINNING OF NEW JOURNEY.**
+
 
 # Day 2
 ###"NEW WEEK, NEW CHAPTER, NAVIGATING COLLEGE LIFE TOGETHER."###<br>
