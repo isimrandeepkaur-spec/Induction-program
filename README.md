@@ -58,7 +58,11 @@ The highlight of the day was the address by the Chief Guest, **Sardar Gurcharan 
 
 **AS THE DAY DREW TO A CLOSE, STUDENTS GAINED VALUABLE INSIGHTS ON UPHOLDING VALUES AND ENHANCED THEIR KNOWLEDGE ON SKILL DEVELOPMENT THROUGH SWAYAM-NPTEL LECTURES.**
 
-# Day 5:
+# Day 5: Introduction to various Clubs
+
+
+**Dr. Amit Kamra** Sir, Incharge of the Digital Marketing Club (DMC), highlighted the significant contributions of his team in managing and elevating the social media presence of GNDEC, showcasing their creativity and expertise in digital marketing. The DMC club members shared some cool reels that showcased their editing skills and creativity. It was clear they had put a lot of effort into making them. I learned that paying attention to details like smooth transitions and visuals can really make a video stand out.<br><br>
+
 
 
 
