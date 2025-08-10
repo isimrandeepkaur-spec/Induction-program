@@ -74,7 +74,7 @@ I attended informative lectures on chemistry and P2P, learning new concepts and 
 Today, I completed the **ID card formation** process, which officially marked my entry into the college community. <br> <br>
 
 Afterwards, I visited the **library** and explored a variety of books, discovering new titles and authors that piqued my interest. The vast collection of resources sparked my curiosity, and I'm excited to delve deeper into the world of knowledge.<br> <br>
-.
+
 **Dr. Randhir Singh Sir** delivered an insightful lecture on partial differentiation, starting from the basics and showcasing his exceptional teaching expertise. His 30-minute session reflected his years of experience and psychological approach, demonstrating a deep understanding of how students think while solving complex problems.<br> <br>
 
 
