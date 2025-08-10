@@ -36,7 +36,7 @@ In the auditorium, **Priya Darshani Ma'am**, an esteemed expert in UHV, used her
 -**pre-conditioning** <br>
 emphasizing that **Natural Acceptance** was key to truly informed and authentic decision-making.<br>
 - **HOME ASSIGNMENTS**<br>
-The home assignments were a  rewarding experience, allowing us to explore our skills, thought processes, and reactions to various situations. It was a great starting point for self-discovery, providing valuable insights into our capabilities and personal growth.<br>
+The home assignments were a  rewarding experience, allowing us to explore our skills, thought processes, and reactions to various situations. It was a great starting point for self-discovery, providing valuable insights into our capabilities and personal growth.<br> <br>
 The college has hosted various **Causmic Club sessions** periodically, aiming to familiarize students with the diverse range of clubs available, their core activities, and the process of joining them.Through these engaging sessions, the Causmic Club introduces students to various activities and initiatives that foster creativity, leadership, and innovation, encouraging freshmen to explore their interests and join the vibrant community. <br> <br>
 **MY SECOND DAY WAS PACKED WITH INSIGHTFUL LEARNINGS AND ENGAGING INTERACTIVE SESSIONS, OFFERING OPPORTUNITIES TO DISCOVER FRESH PERSPECTIVES AND EXPERIENCES. IT WAS**
 
