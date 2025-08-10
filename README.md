@@ -31,6 +31,11 @@ The college has hosted various **Causmic Club sessions** periodically, aiming to
 **MY SECOND DAY WAS PACKED WITH INSIGHTFUL LEARNINGS AND ENGAGING INTERACTIVE SESSIONS, OFFERING OPPORTUNITIES TO DISCOVER FRESH PERSPECTIVES AND EXPERIENCES.**
 
 # Day 3
+### The day was enriching, filled with valuable learnings from the experiences and insights shared by our teachers. <br> <br>
+
+**Aastik Sir**, the English professor, had us write a brief introduction about ourselves, covering our reasons for joining the college and course, as well as our strengths and weaknesses. He emphasized the importance of effective communication skills, whether presenting in class or during job interviews. <br>
+**Prof. Rajbir Kaur Ma'am** led our maths lecture, revisiting key 12th-grade concepts while keeping the session interactive and engaging for the students.<br>
+
 
 
 
