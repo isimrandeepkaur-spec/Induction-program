@@ -22,7 +22,10 @@ ADC of Ludhiana, **Mr. Rakesh Kumar** talked about the good change in the infras
 
 
 # Day 2
-###"NEW WEEK, NEW CHAPTER, NAVIGATING COLLEGE LIFE TOGETHER."###<br>
-**Prof. Rajvir Kaur Ma'am** engaged with us, quizzing on 12th-grade chemistry terms, and highlighted how crucial chemistry is for tech-related fields.
-Our seniors, **Ms. Taranpreet Kaur and S. Sharnjeet Singh**, taught us C++ programming, helping us build a strong foundation.
+### "NEW WEEK, NEW CHAPTER, NAVIGATING COLLEGE LIFE TOGETHER."<br>
+**Prof. Rajvir Kaur Ma'am** engaged with us, quizzing on 12th-grade chemistry terms, and highlighted how crucial chemistry is for tech-related fields. <br>
+Our seniors, **Ms. Taranpreet Kaur and S. Sharnjeet Singh**, taught us C++ programming, helping us build a strong foundation.<br>
+## UNIVERSAL HUMAN VALUES-2 <br>
+In the auditorium, **Priya Darshani Ma'am**, a motivational speaker, used her in-depth knowledge of psychiatry and understanding to empower students to make right decisions based on sensation, natural acceptance, and pre-conditioning, emphasizing that **Natural Acceptance** was key to truly informed and authentic decision-making.<br>
+
 
