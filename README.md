@@ -27,7 +27,7 @@ ADC of Ludhiana, **Mr. Rakesh Kumar** talked about the good change in the infras
 Our seniors, **Ms. Taranpreet Kaur and S. Sharnjeet Singh**, taught us C++ programming, helping us build a strong foundation.<br> <br>
 ## UNIVERSAL HUMAN VALUES-2 <br>
 In the auditorium, **Priya Darshani Ma'am**, a motivational speaker, used her in-depth knowledge of psychiatry and understanding to empower students to make right decisions based on sensation, natural acceptance, and pre-conditioning, emphasizing that **Natural Acceptance** was key to truly informed and authentic decision-making.<br>
-The college has hosted various **Causmic Club sessions** periodically, aiming to familiarize students with the diverse range of clubs available, their core activities, and the process of joining them, thereby encouraging student involvement and exploration of interests.<br> <br>
+The college has hosted various **Causmic Club sessions** periodically, aiming to familiarize students with the diverse range of clubs available, their core activities, and the process of joining them.Through these engaging sessions, the Causmic Club introduces students to various activities and initiatives that foster creativity, leadership, and innovation, encouraging freshmen to explore their interests and join the vibrant community. <br> <br>
 **MY SECOND DAY WAS PACKED WITH INSIGHTFUL LEARNINGS AND ENGAGING INTERACTIVE SESSIONS, OFFERING OPPORTUNITIES TO DISCOVER FRESH PERSPECTIVES AND EXPERIENCES.**
 
 # Day 3
@@ -37,7 +37,12 @@ The college has hosted various **Causmic Club sessions** periodically, aiming to
 **Prof. Rajbir Kaur Ma'am** led our maths lecture, revisiting key 12th-grade concepts while keeping the session interactive and engaging for the students.<br>
 During the BEEE lecture conducted by **Prof. Ranvir Kaur**, we explored the fundamentals of electricity and its diverse applications, gaining a deeper understanding of the subject.<br>
 
-**BY THE END OF THE DAY, I HAD GAINED VALUABLE KNOWLEDGE, ENHANCING MY INTELLIGENCE AND REFINING MY COMMUNICATION SKILLS.**
+**BY THE END OF THE DAY, I HAD GAINED VALUABLE KNOWLEDGE, ENHANCING MY INTELLIGENCE AND REFINING MY COMMUNICATION SKILLS**< br> 
+# Day 4
+
+During the lecture of BEEE and P2P we gained the knowledge of related subjects
+In the evening 
+
 
 
 
