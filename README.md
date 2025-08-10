@@ -31,8 +31,8 @@ ADC of Ludhiana, **Mr. Rakesh Kumar** talked about the good change in the infras
 Our seniors, **Ms. Taranpreet Kaur and S. Sharnjeet Singh**, taught us C++ programming, helping us build a strong foundation.They ensured clarity by incorporating relevant examples, making the concepts easily understandable.<br> <br>
 ## UNIVERSAL HUMAN VALUES-2 <br>
 In the auditorium, **Priya Darshani Ma'am**, an esteemed expert in UHV, used her in-depth knowledge of psychiatry and understanding to empower students to make right decisions based on:
--**sensation**
--**natural acceptance**
+-**sensation** <br>
+-**natural acceptance**<br>
 -**pre-conditioning** <br>
 emphasizing that **Natural Acceptance** was key to truly informed and authentic decision-making.<br>
 - **HOME ASSIGNMENTS**<br>
