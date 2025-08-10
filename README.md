@@ -3,7 +3,7 @@ Name :- Simrandeep Kaur<br>
 Father's Name:- S. Pritpal Singh ji<br>
 Course :- B.Tech<br>
 Branch :- CSE<br>
-Section :- F<br> hello
+Section :- F<br> 
 
 # Day 1: Introductory Sessions
 As I entered college, I felt an unfamiliar sense of calm and contentment, knowing I'd found my haven. It felt like the right place to spend four years, shaping me in new ways.🌼
