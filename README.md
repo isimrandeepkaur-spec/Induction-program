@@ -40,7 +40,7 @@ During the BEEE lecture conducted by **Prof. Ranvir Kaur**, we explored the fund
 **BY THE END OF THE DAY, I HAD GAINED VALUABLE KNOWLEDGE, ENHANCING MY INTELLIGENCE AND REFINING MY COMMUNICATION SKILLS**< br> 
 # Day 4
 
-The highlight of the day was the address by the Chief Guest, **Sardar Gurcharan Singh Grewal**, member of Shiromani Gurdwara Parbandhak Committee (SGPC) and a respected member of the Nankana Sahib Education Trust, whose motivational words encouraged students to stay grounded in values while aspiring for excellence in their academic journey. <br>
+The highlight of the day was the address by the Chief Guest, **Sardar Gurcharan Singh Grewal**, member of Shiromani Gurdwara Parbandhak Committee (SGPC) and a respected member of the Nankana Sahib Education Trust, whose motivational words encouraged students to stay grounded in values while aspiring for excellence in their academic journey. <br> <br>
 **Dr. Lakhvir Singh Khana Sir**, Incharge of CML, delivered an insightful lecture on SWAYAM-NPTEL, highlighting various courses to boost students' personality development and skill-based performance.<br>
 
 **AS THE DAY DREW TO A CLOSE, STUDENTS GAINED VALUABLE INSIGHTS ON UPHOLDING VALUES AND ENHANCED THEIR KNOWLEDGE ON SKILL DEVELOPMENT THROUGH SWAYAM-NPTEL LECTURES.**
