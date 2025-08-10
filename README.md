@@ -26,9 +26,9 @@ ADC of Ludhiana, **Mr. Rakesh Kumar** talked about the good change in the infras
 **Prof. Rajvir Kaur Ma'am** engaged with us, quizzing on 12th-grade chemistry terms, and highlighted how crucial chemistry is for tech-related fields. <br>
 Our seniors, **Ms. Taranpreet Kaur and S. Sharnjeet Singh**, taught us C++ programming, helping us build a strong foundation.<br> <br>
 ## UNIVERSAL HUMAN VALUES-2 <br>
-In the auditorium, **Priya Darshani Ma'am**, a motivational speaker, used her in-depth knowledge of psychiatry and understanding to empower students to make right decisions based on sensation, natural acceptance, and pre-conditioning, emphasizing that **Natural Acceptance** was key to truly informed and authentic decision-making.<br>
+In the auditorium, **Priya Darshani Ma'am**, an esteemed expert in UHV, used her in-depth knowledge of psychiatry and understanding to empower students to make right decisions based on sensation, natural acceptance, and pre-conditioning, emphasizing that **Natural Acceptance** was key to truly informed and authentic decision-making.<br>
 The college has hosted various **Causmic Club sessions** periodically, aiming to familiarize students with the diverse range of clubs available, their core activities, and the process of joining them.Through these engaging sessions, the Causmic Club introduces students to various activities and initiatives that foster creativity, leadership, and innovation, encouraging freshmen to explore their interests and join the vibrant community. <br> <br>
-**MY SECOND DAY WAS PACKED WITH INSIGHTFUL LEARNINGS AND ENGAGING INTERACTIVE SESSIONS, OFFERING OPPORTUNITIES TO DISCOVER FRESH PERSPECTIVES AND EXPERIENCES.**
+**MY SECOND DAY WAS PACKED WITH INSIGHTFUL LEARNINGS AND ENGAGING INTERACTIVE SESSIONS, OFFERING OPPORTUNITIES TO DISCOVER FRESH PERSPECTIVES AND EXPERIENCES. IT WAS**
 
 # Day 3
 ### The day was enriching, filled with valuable learnings from the experiences and insights shared by our teachers. <br> <br>
@@ -40,9 +40,10 @@ During the BEEE lecture conducted by **Prof. Ranvir Kaur**, we explored the fund
 **BY THE END OF THE DAY, I HAD GAINED VALUABLE KNOWLEDGE, ENHANCING MY INTELLIGENCE AND REFINING MY COMMUNICATION SKILLS**< br> 
 # Day 4
 
-During the lecture of BEEE and P2P we gained the knowledge of related subjects
-In the evening 
+The highlight of the day was the address by the Chief Guest, **Sardar Gurcharan Singh Grewal**, member of Shiromani Gurdwara Parbandhak Committee (SGPC) and a respected member of the Nankana Sahib Education Trust, whose motivational words encouraged students to stay grounded in values while aspiring for excellence in their academic journey. <br>
+**Dr. Lakhvir Singh Khana Sir**, Incharge of CML, delivered an insightful lecture on SWAYAM-NPTEL, highlighting various courses to boost students' personality development and skill-based performance.<br>
 
+**AS THE DAY DREW TO A CLOSE, STUDENTS GAINED VALUABLE INSIGHTS ON UPHOLDING VALUES AND ENHANCED THEIR KNOWLEDGE ON SKILL DEVELOPMENT THROUGH SWAYAM-NPTEL LECTURES.**
 
 
 
