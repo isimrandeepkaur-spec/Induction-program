@@ -16,21 +16,25 @@ was being recited in a melodious voice. Granthi ji sought blessings for our succ
 <br>
 ## AUDITORIUM: WELCOME SESSIONS
 After that in auditorium  all students had gathered. We were made familiar with the history of college and its current **70th year of excellence** by S. Harsimranjit Singh. Our seniors shared their experience through a recorded video. <br> <br>
-The host invited HoD Applied Science Dept. **Dr. Harpreet Kaur Grewal** Ma'am. She warmly welcomed all of us and motivated us.<br>
-Dean **Dr. Parminder Singh** Sir emphasized that if we dream big and work hard, we will definitely become successful.<br>
+The host invited HoD Applied Science Dept. **Dr. Harpreet Kaur Grewal** Ma'am. She warmly welcomed all of us and motivated us.<br><br>
+Dean **Dr. Parminder Singh** Sir emphasized that if we dream big and work hard, we will definitely become successful.<br><br>
 Respected Principal **Dr. Sehijpal Singh** Sir welcomed us and spoke about the change of today's need in technology.
-<br>
-Chief engineer **Er. Ravinder Garg** at Municipal Corporation, Ludhiana told his journey and he stressed the importance of good manners and social responsibility, highlighting their role in nation-building. His words promoted integrity and civic duty. <br>
+<br><br>
+Chief engineer **Er. Ravinder Garg** at Municipal Corporation, Ludhiana told his journey and he stressed the importance of good manners and social responsibility, highlighting their role in nation-building. His words promoted integrity and civic duty. <br><br>
 ADC of Ludhiana, **Mr. Rakesh Kumar** talked about the good change in the infrastructure of college as he was a pass out of ECE 1991 batch. <br> <br>
 **THE DAY CONCLUDED WITH REFRESHING THOUGHTS AND EXCITEMENT FOR THE BEGINNING OF NEW JOURNEY.**
 
 
 # Day 2: New beginnings
 ### "NEW WEEK, NEW CHAPTER, NAVIGATING COLLEGE LIFE TOGETHER."<br>
-**Prof. Rajvir Kaur Ma'am** engaged with us, quizzing on 12th-grade chemistry terms, and highlighted how crucial chemistry is for tech-related fields.She delivered a comprehensive overview of the new syllabus, breaking it down and clarifying its key components.<br>
+**Prof. Rajvir Kaur Ma'am** engaged with us, quizzing on 12th-grade chemistry terms, and highlighted how crucial chemistry is for tech-related fields.She delivered a comprehensive overview of the new syllabus, breaking it down and clarifying its key components.<br><br>
 Our seniors, **Ms. Taranpreet Kaur and S. Sharnjeet Singh**, taught us C++ programming, helping us build a strong foundation.They ensured clarity by incorporating relevant examples, making the concepts easily understandable.<br> <br>
 ## UNIVERSAL HUMAN VALUES-2 <br>
-In the auditorium, **Priya Darshani Ma'am**, an esteemed expert in UHV, used her in-depth knowledge of psychiatry and understanding to empower students to make right decisions based on sensation, natural acceptance, and pre-conditioning, emphasizing that **Natural Acceptance** was key to truly informed and authentic decision-making.<br>
+In the auditorium, **Priya Darshani Ma'am**, an esteemed expert in UHV, used her in-depth knowledge of psychiatry and understanding to empower students to make right decisions based on:
+-**sensation**
+-**natural acceptance**
+-**pre-conditioning** <br>
+emphasizing that **Natural Acceptance** was key to truly informed and authentic decision-making.<br>
 - **HOME ASSIGNMENTS**<br>
 The home assignments were a  rewarding experience, allowing us to explore our skills, thought processes, and reactions to various situations. It was a great starting point for self-discovery, providing valuable insights into our capabilities and personal growth.<br>
 The college has hosted various **Causmic Club sessions** periodically, aiming to familiarize students with the diverse range of clubs available, their core activities, and the process of joining them.Through these engaging sessions, the Causmic Club introduces students to various activities and initiatives that foster creativity, leadership, and innovation, encouraging freshmen to explore their interests and join the vibrant community. <br> <br>
