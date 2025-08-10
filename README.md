@@ -53,7 +53,7 @@ As I explored the college library, I discovered a vast array of books on various
 **BY THE END OF THE DAY, I HAD GAINED VALUABLE KNOWLEDGE, ENHANCING MY INTELLIGENCE AND REFINING MY COMMUNICATION SKILLS**<br> 
 # Day 4: Inspirational Talks
 
-The highlight of the day was the address by the Chief Guest, **Sardar Gurcharan Singh Grewal**, member of Shiromani Gurdwara Parbandhak Committee (SGPC) and a respected member of the Nankana Sahib Education Trust, whose motivational words encouraged students to stay grounded in values while aspiring for excellence in their academic journey.He shared his inspiring journey, recounting experiences from his college days to his current accomplishments, motivating students to look forward to the exciting opportunities and challenges that lie ahead.<br> <br>
+The highlight of the day was the address by the Chief Guest, **Sardar Gurcharan Singh Grewal** Sir, member of Shiromani Gurdwara Parbandhak Committee (SGPC) and a respected member of the Nankana Sahib Education Trust, whose motivational words encouraged students to stay grounded in values while aspiring for excellence in their academic journey.He shared his inspiring journey, recounting experiences from his college days to his current accomplishments, motivating students to look forward to the exciting opportunities and challenges that lie ahead.<br> <br>
 **Dr. Lakhvir Singh Khana Sir**, Incharge of CML, delivered an insightful lecture on SWAYAM-NPTEL, highlighting various courses to boost students' personality development and skill-based performance.<br>
 
 **AS THE DAY DREW TO A CLOSE, STUDENTS GAINED VALUABLE INSIGHTS ON UPHOLDING VALUES AND ENHANCED THEIR KNOWLEDGE ON SKILL DEVELOPMENT THROUGH SWAYAM-NPTEL LECTURES.**
@@ -66,7 +66,7 @@ The highlight of the day was the address by the Chief Guest, **Sardar Gurcharan 
 ## CONDUCT OF EXAMINATION 
 **Dr. Randhir Singh** Sir, provided a comprehensive overview of the exam procedures, detailing the pattern of mid-semester 1, mid-semester 2, and final exams, and clearly outlined the rules and regulations governing exam conduct, ensuring everyone understood the expectations and format.<br> <br>
 ## COURSE LECTURES
-I attended informative lectures on chemistry and P2P, learning new concepts and topics that broadened our understanding of both subjects.<br> <br> 
+I attended informative lectures on chemistry and P2P, learning new concepts and topics that broadened omy understanding of both subjects.<br> <br> 
 **THE DAY WAS FULL OF VALUABLE LEARNINGS, INTRODUCING US TO COLLEGE LIFE, CLUBS, EXAM PROCEDURES, AND ACADEMIC SUBJECTS. I GAINED INSIGHTS INTO CREATIVITY, TEAMWORK, AND TIME MANAGEMENT, SETTING A STRONG FOUNDATION FOR MY ACADEMIC JOURNEY.**
 
 
