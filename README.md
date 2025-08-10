@@ -47,7 +47,7 @@ The college has hosted various **Causmic Club sessions** periodically, aiming to
 **Prof. Rajbir Kaur Ma'am** led our maths lecture, revisiting key 12th-grade concepts while keeping the session interactive and engaging for the students.<br>
 During the BEEE lecture conducted by **Prof. Ranvir Kaur Ma'am**, we explored the fundamentals of electricity and its diverse applications, gaining a deeper understanding of the subject.<br>
 
-**BY THE END OF THE DAY, I HAD GAINED VALUABLE KNOWLEDGE, ENHANCING MY INTELLIGENCE AND REFINING MY COMMUNICATION SKILLS**< br> 
+**BY THE END OF THE DAY, I HAD GAINED VALUABLE KNOWLEDGE, ENHANCING MY INTELLIGENCE AND REFINING MY COMMUNICATION SKILLS**<br> 
 # Day 4: Inspirational Talks
 
 The highlight of the day was the address by the Chief Guest, **Sardar Gurcharan Singh Grewal**, member of Shiromani Gurdwara Parbandhak Committee (SGPC) and a respected member of the Nankana Sahib Education Trust, whose motivational words encouraged students to stay grounded in values while aspiring for excellence in their academic journey. <br> <br>
