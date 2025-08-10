@@ -69,6 +69,14 @@ The highlight of the day was the address by the Chief Guest, **Sardar Gurcharan 
 I attended informative lectures on chemistry and P2P, learning new concepts and topics that broadened omy understanding of both subjects.<br> <br> 
 **THE DAY WAS FULL OF VALUABLE LEARNINGS, INTRODUCING US TO COLLEGE LIFE, CLUBS, EXAM PROCEDURES, AND ACADEMIC SUBJECTS. I GAINED INSIGHTS INTO CREATIVITY, TEAMWORK, AND TIME MANAGEMENT, SETTING A STRONG FOUNDATION FOR MY ACADEMIC JOURNEY.**
 
+# Day 6
+
+Today, I completed the **ID card formation** process, which officially marked my entry into the college community. <br> <br>
+
+Afterwards, I visited the **library** and explored a variety of books, discovering new titles and authors that piqued my interest. The vast collection of resources sparked my curiosity, and I'm excited to delve deeper into the world of knowledge.<br> <br>
+.
+**Dr. Randhir Singh Sir** delivered an insightful lecture on partial differentiation, starting from the basics and showcasing his exceptional teaching expertise. His 30-minute session reflected his years of experience and psychological approach, demonstrating a deep understanding of how students think while solving complex problems.<br> <br>
+
 
 
 
