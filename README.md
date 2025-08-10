@@ -8,9 +8,13 @@ Section :- F<br>
 # Day 1
 As I entered college, I felt an unfamiliar sense of calm and contentment, knowing I'd found my haven. It felt like the right place to spend four years, shaping me in new ways.🌼
 <br>
+## SPIRITUAL ORIENTATION  
 All **CSE and IT** students embarked on their academic journey with a peaceful prayer ceremony at Gurudwara Sahib, laying a spiritual foundation for the days to come.
-When I entered the Gurudwara Sahib shabad **"ਸਤਿਗੁਰੁ ਹੋਇ ਦਇਆਲੁ ਤ ਸਰਧਾ ਪੂਰੀਐ"** was being recited in a melodious voice.🙏
+When I entered the Gurudwara Sahib shabad <br>
+**"ਸਤਿਗੁਰੁ ਹੋਇ ਦਇਆਲੁ ਤ ਸਰਧਾ ਪੂਰੀਐ"** <br>
+was being recited in a melodious voice.🙏
 <br>
+## AUDITORIUM: WELCOME SESSIONS
 After that in auditorium  all students had gathered. We were made familiar with the history of college and its current **70th year of excellence** by S. Harsimranjit Singh. Our seniors shared their experience through a recorded video. <br> <br>
 The host invited HoD Applied Science Dept. **Dr. Harpreet Kaur Grewal** Ma'am. She warmly welcomed all of us and motivated us.<br>
 Dean **Dr. Parminder Singh** Sir emphasized that if we dream big and work hard, we will definitely become successful.<br>
@@ -23,10 +27,12 @@ ADC of Ludhiana, **Mr. Rakesh Kumar** talked about the good change in the infras
 
 # Day 2
 ### "NEW WEEK, NEW CHAPTER, NAVIGATING COLLEGE LIFE TOGETHER."<br>
-**Prof. Rajvir Kaur Ma'am** engaged with us, quizzing on 12th-grade chemistry terms, and highlighted how crucial chemistry is for tech-related fields. <br>
-Our seniors, **Ms. Taranpreet Kaur and S. Sharnjeet Singh**, taught us C++ programming, helping us build a strong foundation.<br> <br>
+**Prof. Rajvir Kaur Ma'am** engaged with us, quizzing on 12th-grade chemistry terms, and highlighted how crucial chemistry is for tech-related fields.She delivered a comprehensive overview of the new syllabus, breaking it down and clarifying its key components.<br>
+Our seniors, **Ms. Taranpreet Kaur and S. Sharnjeet Singh**, taught us C++ programming, helping us build a strong foundation.They ensured clarity by incorporating relevant examples, making the concepts easily understandable.<br> <br>
 ## UNIVERSAL HUMAN VALUES-2 <br>
 In the auditorium, **Priya Darshani Ma'am**, an esteemed expert in UHV, used her in-depth knowledge of psychiatry and understanding to empower students to make right decisions based on sensation, natural acceptance, and pre-conditioning, emphasizing that **Natural Acceptance** was key to truly informed and authentic decision-making.<br>
+- **HOME ASSIGNMENTS**<br>
+The home assignments were a  rewarding experience, allowing us to explore our skills, thought processes, and reactions to various situations. It was a great starting point for self-discovery, providing valuable insights into our capabilities and personal growth.<br>
 The college has hosted various **Causmic Club sessions** periodically, aiming to familiarize students with the diverse range of clubs available, their core activities, and the process of joining them.Through these engaging sessions, the Causmic Club introduces students to various activities and initiatives that foster creativity, leadership, and innovation, encouraging freshmen to explore their interests and join the vibrant community. <br> <br>
 **MY SECOND DAY WAS PACKED WITH INSIGHTFUL LEARNINGS AND ENGAGING INTERACTIVE SESSIONS, OFFERING OPPORTUNITIES TO DISCOVER FRESH PERSPECTIVES AND EXPERIENCES. IT WAS**
 
