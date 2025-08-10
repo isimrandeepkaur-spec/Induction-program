@@ -62,6 +62,7 @@ The highlight of the day was the address by the Chief Guest, **Sardar Gurcharan 
 
 
 **Dr. Amit Kamra** Sir, Incharge of the Digital Marketing Club (DMC), highlighted the significant contributions of his team in managing and elevating the social media presence of GNDEC, showcasing their creativity and expertise in digital marketing. The DMC club members shared some cool reels that showcased their editing skills and creativity. It was clear they had put a lot of effort into making them. I learned that paying attention to details like smooth transitions and visuals can really make a video stand out.<br><br>
+**Dr. Parminder Singh** Sir, Dean- Student Welfare, delivered a presentation on the various clubs available in the college, encouraging students to join those that align with their interests. The PowerPoint presentation was well-structured and easy to follow, effectively conveying the information in a clear and engaging manner. I gained insight into the diverse range of clubs and felt motivated to explore opportunities that suit my interests. <br> <br>
 
 
 
