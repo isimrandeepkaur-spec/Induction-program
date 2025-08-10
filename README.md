@@ -5,7 +5,7 @@ Course :- B.Tech<br>
 Branch :- CSE<br>
 Section :- F<br>
 
-# Day 1
+# Day 1: Introductory Sessions
 As I entered college, I felt an unfamiliar sense of calm and contentment, knowing I'd found my haven. It felt like the right place to spend four years, shaping me in new ways.🌼
 <br>
 ## SPIRITUAL ORIENTATION  
@@ -25,7 +25,7 @@ ADC of Ludhiana, **Mr. Rakesh Kumar** talked about the good change in the infras
 **THE DAY CONCLUDED WITH REFRESHING THOUGHTS AND EXCITEMENT FOR THE BEGINNING OF NEW JOURNEY.**
 
 
-# Day 2
+# Day 2: New beginnings
 ### "NEW WEEK, NEW CHAPTER, NAVIGATING COLLEGE LIFE TOGETHER."<br>
 **Prof. Rajvir Kaur Ma'am** engaged with us, quizzing on 12th-grade chemistry terms, and highlighted how crucial chemistry is for tech-related fields.She delivered a comprehensive overview of the new syllabus, breaking it down and clarifying its key components.<br>
 Our seniors, **Ms. Taranpreet Kaur and S. Sharnjeet Singh**, taught us C++ programming, helping us build a strong foundation.They ensured clarity by incorporating relevant examples, making the concepts easily understandable.<br> <br>
