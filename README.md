@@ -54,7 +54,7 @@ As I explored the college library, I discovered a vast array of books on various
 # Day 4: Inspirational Talks
 
 The highlight of the day was the address by the Chief Guest, **Sardar Gurcharan Singh Grewal** Sir, member of Shiromani Gurdwara Parbandhak Committee (SGPC) and a respected member of the Nankana Sahib Education Trust, whose motivational words encouraged students to stay grounded in values while aspiring for excellence in their academic journey.He shared his inspiring journey, recounting experiences from his college days to his current accomplishments, motivating students to look forward to the exciting opportunities and challenges that lie ahead.<br> <br>
-**Dr. Lakhvir Singh Khana Sir**, Incharge of CML, delivered an insightful lecture on SWAYAM-NPTEL, highlighting various courses to boost students' personality development and skill-based performance.<br>
+**Dr. Lakhvir Singh Khana Sir**, Incharge of CML, delivered an insightful lecture on SWAYAM-NPTEL, highlighting various courses to boost students' personality development and skill-based performance.<br><br>
 
 **AS THE DAY DREW TO A CLOSE, STUDENTS GAINED VALUABLE INSIGHTS ON UPHOLDING VALUES AND ENHANCED THEIR KNOWLEDGE ON SKILL DEVELOPMENT THROUGH SWAYAM-NPTEL LECTURES.**
 
