@@ -66,8 +66,8 @@ The highlight of the day was the address by the Chief Guest, **Sardar Gurcharan 
 ## CONDUCT OF EXAMINATION 
 **Dr. Randhir Singh** Sir, provided a comprehensive overview of the exam procedures, detailing the pattern of mid-semester 1, mid-semester 2, and final exams, and clearly outlined the rules and regulations governing exam conduct, ensuring everyone understood the expectations and format.<br> <br>
 ## COURSE LECTURES
-
-
+I attended informative lectures on chemistry and P2P, learning new concepts and topics that broadened our understanding of both subjects.<br> <br> 
+**THE DAY WAS FULL OF VALUABLE LEARNINGS, INTRODUCING US TO COLLEGE LIFE, CLUBS, EXAM PROCEDURES, AND ACADEMIC SUBJECTS. I GAINED INSIGHTS INTO CREATIVITY, TEAMWORK, AND TIME MANAGEMENT, SETTING A STRONG FOUNDATION FOR MY ACADEMIC JOURNEY.**
 
 
 
