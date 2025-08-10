@@ -35,6 +35,8 @@ The college has hosted various **Causmic Club sessions** periodically, aiming to
 
 **Aastik Sir**, the English professor, had us write a brief introduction about ourselves, covering our reasons for joining the college and course, as well as our strengths and weaknesses. He emphasized the importance of effective communication skills, whether presenting in class or during job interviews. <br>
 **Prof. Rajbir Kaur Ma'am** led our maths lecture, revisiting key 12th-grade concepts while keeping the session interactive and engaging for the students.<br>
+During the BEEE lecture conducted by **Prof. Ranvir Kaur**, we explored the fundamentals of electricity and its diverse applications, gaining a deeper understanding of the subject.<br>
+
 
 
 
